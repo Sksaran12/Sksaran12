@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently doing my MCA course <br>I do listen music <br>Study mode <br>Focus govt job parmanently<br>Now I am searching job IT fields<br>Studying in Girijananda Chowdhary University 
+Currently I am doing MCA course <br>I love to listening music <br>Study mode <br>Focus govt job parmanently<br>Now I am searching job IT fields<br>Studying in Girijananda Chowdhary University 
 
 
 ## 🌐 Socials:
